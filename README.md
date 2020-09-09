@@ -1,3 +1,3 @@
 
   
-### 👋 Hello World !  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="24px">
+### 👋 Hello World !  <img src="https://steamcommunity.com/sharedfiles/filedetails/?id=1786072248" width="24px">
